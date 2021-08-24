@@ -8,5 +8,5 @@
 >
 > 如果你患得患失、把希望全寄托在别人身上，动辄抱怨、爱发表负面评论博眼球，那么请不要付费上车，不然这个专栏不会让你感到舒服。
 
-![](https://i.loli.net/2021/08/10/A8Ve6Xbw1QYZ5HE.png)
+![](https://i.loli.net/2021/08/24/dmjEcqRflW72tbQ.png)
 
