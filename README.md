@@ -1,6 +1,7 @@
 [《重学安卓》](https://xiaozhuanlan.com/kunminx)订阅读者加微信进群：myatejx
 
-> [往期回顾](https://kunminx.gitbook.io/relearn-android/new_moments/zhong-xue-an-zhuo-liang-zhou-nian-hui-gu-yu-zhan-wang)，**[专栏目录](https://kunminx.gitbook.io/relearn-android/category)**，**[更新动态](https://kunminx.gitbook.io/relearn-android/new_moments)**，[优惠政策](https://kunminx.gitbook.io/relearn-android/ban-quan-sheng-ming#you-hui-zheng-ce)，[版权须知](https://kunminx.gitbook.io/relearn-android/ban-quan-sheng-ming#ban-quan-xu-zhi)
+> [免费试读](https://mp.weixin.qq.com/s/h2IvuIRWe0OLx3hgbTABYA)，**[专栏目录](https://kunminx.gitbook.io/relearn-android/category)**，**[更新动态](https://kunminx.gitbook.io/relearn-android/new_moments)**，[优惠政策](https://kunminx.gitbook.io/relearn-android/ban-quan-sheng-ming#you-hui-zheng-ce)
+
 > 
 > 本专栏不仅仅是我一个人的创作，也是诸多小伙伴实事求是、互动演化的结果。
 >
