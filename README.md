@@ -2,12 +2,5 @@
 
 > [免费试读](https://mp.weixin.qq.com/s/h2IvuIRWe0OLx3hgbTABYA)，**[专栏目录](https://kunminx.gitbook.io/relearn-android/category)**，**[更新动态](https://kunminx.gitbook.io/relearn-android/new_moments)**，[优惠政策](https://kunminx.gitbook.io/relearn-android/ban-quan-sheng-ming#you-hui-zheng-ce)
 
-> 
-> 本专栏不仅仅是我一个人的创作，也是诸多小伙伴实事求是、互动演化的结果。
->
-> 如果你踏实、上进、聪明，明白术业有专攻，权当把一部分钱投到水里的心态来学习，那么随时欢迎你的到来，这里几乎全是这样的人。
->
-> 如果你患得患失、把希望全寄托在别人身上，动辄抱怨、爱发表负面评论博眼球，那么请不要付费上车，不然这个专栏不会让你感到舒服。
-
 [![](https://i.loli.net/2021/08/28/NEAkD8erR1ba23M.png)](https://xiaozhuanlan.com/topic/2356748910)
 
