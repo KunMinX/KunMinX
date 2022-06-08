@@ -3,5 +3,5 @@
 > [免费试读](https://www.yuque.com/kunminx/fpmbc5/xn479q)，**[专栏目录](https://www.yuque.com/kunminx/fpmbc5/ghlwb5)**，**[更新动态](https://www.yuque.com/kunminx/fpmbc5/in59vu)**，[优惠政策](https://www.yuque.com/kunminx/fpmbc5/of601a)
 
 
-[![](https://images.xiaozhuanlan.com/photo/2022/9d56dff95cc21adc1ef5a683ee36c057.png)](https://www.yuque.com/kunminx/fpmbc5/xn479q)
+[![](https://images.xiaozhuanlan.com/photo/2022/df330e4ce8104014d5142d1097047e5d.png)](https://www.yuque.com/kunminx/fpmbc5/xn479q)
 
